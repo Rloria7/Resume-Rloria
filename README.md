@@ -1,0 +1,2 @@
+# Resume-Rloria
+Resume Richard
